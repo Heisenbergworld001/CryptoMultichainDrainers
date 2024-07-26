@@ -97,6 +97,7 @@
 
 ⚠️ Professional communication only ⚠️
 
+### 🛍 **🏷️THERE IS LIVE DEMO AVAILABLE WHERE YOU CAN TEST BEFORE PURCHASE**🏷️ 🛍
 
 </div>
 
@@ -148,6 +149,9 @@
 - 🛠 Free installation and user manual.
 - 🔄 Switch between multiple robust APIs.
 
+
+💬 **Contact**: [@HEISENBERGWORLD](https://t.me/HEISENBERGWORLD)  on Telegram 💬
+
 ---
 
 <div align="center">
@@ -161,6 +165,7 @@ The product is sold for informational purposes only. The end user assumes full r
 ---
 ## 🖼 Previews👇
 ![preview](https://github.com/Heisenbergworld001/CryptoMultichainDrainers/blob/main/heisenberg.png)
-![preview](https://github.com/Heisenbergworld001/CryptoMultichainDrainers/blob/main/me.mp4)
 ![preview](https://i.ibb.co/H73pwTS/kkn.png)
 ![preview](https://i.ibb.co/zNgD2yw/kkm.png)
+
+💬 **Contact**: [@HEISENBERGWORLD](https://t.me/HEISENBERGWORLD)  on Telegram 💬
